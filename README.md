@@ -1,1 +1,0 @@
-# qafeb21-KovalyshynIllya
